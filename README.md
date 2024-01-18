@@ -9,3 +9,5 @@ https://www.udemy.com/share/101XRs3@I2rRHNa-co2O8Z7g4DoXhERGxr8dy2HMmshaWk2Gdkt4
 ・盗んだお宝を持って脱出するとゲームクリア
 ・盗んだお宝を持たずに脱出してしまうとゲームオーバー
 
+【プレイ動画】
+https://drive.google.com/file/d/1wsGRRdH0928B4fp2g722Af45NfS627Fd/view?usp=sharing
