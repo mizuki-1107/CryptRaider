@@ -9,5 +9,11 @@ https://www.udemy.com/share/101XRs3@I2rRHNa-co2O8Z7g4DoXhERGxr8dy2HMmshaWk2Gdkt4
 ・盗んだお宝を持って脱出するとゲームクリア
 ・盗んだお宝を持たずに脱出してしまうとゲームオーバー
 
+クレジット
+【Medieval Dungeon】
+https://www.unrealengine.com/marketplace/ja/product/a5b6a73fea5340bda9b8ac33d877c9e2?sessionInvalidated=true
+
 【プレイ動画】
 https://youtu.be/JctrZn8whdM
+
+
